@@ -1,4 +1,4 @@
-#Our Discord
+# Our Discord
 
 If you need any help - https://discord.gg/nchub
 
