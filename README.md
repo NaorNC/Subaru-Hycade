@@ -6,7 +6,7 @@ If you need any help - https://discord.gg/nchub
 
 - click - https://streamable.com/n0h2sn
 
-![Subaru-Hycade](https://media.discordapp.net/attachments/1013909747986075678/1013914807918931968/Screenshot_1.png?width=1440&height=559)
+![Subaru-Hycade](https://forum.cfx.re/uploads/default/original/4X/f/e/c/fec69f46b06a14387f8dfc3d6116c1dc2820fbb8.jpeg)
 
 # Installation
 
